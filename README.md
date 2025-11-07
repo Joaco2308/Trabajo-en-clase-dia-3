@@ -1,2 +1,3 @@
-# Trabajo-en-clase-dia-3
-?
+# primer aporte en equipo 
+
+ygyuhbygvfrtfcf
